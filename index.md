@@ -7,7 +7,7 @@
 2. 04/06/2022 - ShortEver (.com) [BIG TROPHY]
 2. 04/06/2022 - Zemour (.fr) [MEGA BIG TROPHY]
 2. 04/06/2022 - MLaFrance (.fr) [MEGA BIG TROPHY]
-2. 04/06/2022 - Amazon (.com) [SUPRA MEGA BIG TROPHY] (dow que pendant 4secondes/down for only 4seconds)
+2. 04/06/2022 - Amazon (.com) [SUPRA MEGA BIG TROPHY] (down que pendant 4secondes/down for only 4seconds)
 
 ## Defaces
 2. 27/05/2022 Zikoland (.com)
